@@ -1,5 +1,5 @@
 1. Ofelija Bashirova
-2. Telegram iofochka
+2. Telegram iofochka, email dir3ktt@yandex.ru
 3. I'm curious to know more swift and gonna to do 
 yours tasks. I am a fast learner. I can look for information 
 in the internet and solve tasks by myself. I sincerely interested in mobile development.
